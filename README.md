@@ -1,2 +1,1 @@
-<img src="<img src="https://media1.tenor.com/m/_0EtIDhavoUAAAAd/ai-ai-dog.gif" alt="a brown and white dog with a blue collar is standing on the floor and smiling ."/><img width="211" height="374" alt="image" src="https://github.com/user-attachments/assets/4a7f5ac0-1e2f-4011-8255-f859f85498fa" />
-">
+<img src="<img src="<img src="https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Fi.pinimg.com%2Foriginals%2F51%2Fc6%2Fe2%2F51c6e212d2d32569efe3d8a215613895.png&amp;f=1&amp;nofb=1&amp;ipt=7db0c19c935656abc41da00d5f4c3b9aaeedf32dc6880499222e0edcdbfc27b8" alt="YKMET; ren hana | Konstig konst, Gulliga ritningar, Karaktärskonst"/>
